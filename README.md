@@ -19,7 +19,7 @@
 <br/>  
 
 - 🌍 Based in Minsk
-- 🎂 21 full years from birth
+- 🎂 23 full years from birth
 - 🕸️ Web devoleper
 - 🎮 Also a game developer and gamer
 
